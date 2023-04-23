@@ -1,1 +1,1 @@
-The freeside inn is a 
+The freeside inn is an inn
